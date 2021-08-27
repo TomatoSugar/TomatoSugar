@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @TomatoSugar
+- 👀 I’m interested in Wierd Things
+- 🌱 I’m currently learning Java Script
+- ✌ Its Just Me
+- 😍 I Love FNF
